@@ -1,1 +1,0 @@
-# monshin_mobile
